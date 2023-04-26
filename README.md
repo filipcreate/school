@@ -1,0 +1,2 @@
+# school
+For educational purpose ✒️
